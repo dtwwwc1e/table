@@ -1,4 +1,4 @@
 # Ingredients
 - lemon
-- avocado
+- avocados
 # Instructions
